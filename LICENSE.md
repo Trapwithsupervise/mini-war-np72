@@ -1,4 +1,4 @@
-#  
+#  Premium plants vs brainrots scripts é o melhor plants vs brainrots scripts com atualização automática e velocidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
